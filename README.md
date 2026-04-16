@@ -1,2 +1,2 @@
-# Conflict-in-ygnia
+# Postcolonial Conflict
 Учебный сайт о постколониальном конфликте
